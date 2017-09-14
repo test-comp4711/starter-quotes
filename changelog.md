@@ -1,3 +1,0 @@
-Creators:
-JN
-DC
